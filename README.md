@@ -16,10 +16,9 @@
 
 ### Go
 
-1. https://www.udemy.com/share/10biYR3@HGYRkbtosya2CD-UbRqxTBZhPWEypyLgw9_wKmZTuTmm4bthCYCHVDQ-OIFDzAQiTA==/
+1. https://www.udemy.com/share/10biYR3@k8m2JfxEpM3MBGw5YhwbXRUSCAKHHhVXnNl3VarAL1deBTHbI2epIE8a-nEj5iYy4w==/
 
-2. https://www.udemy.com/share/10biYR3@k8m2JfxEpM3MBGw5YhwbXRUSCAKHHhVXnNl3VarAL1deBTHbI2epIE8a-nEj5iYy4w==/
-
+2. https://www.udemy.com/share/10dekl3@h0ZrKXH6raCHDn_y2Mw9cxw9C4oI-xSbixEa3pXRKTa0lO00pYhYRrFy8og3_3ow2w==/
 ### Python
 
 1. https://www.udemy.com/share/101rZm3@cy7NjtcQHMkuve88jH20Kw9hRcHNw4N6n3B536_ehWzOEAW0oU-5AwbLh9Xn9Gx3GA==/
